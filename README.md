@@ -1,2 +1,2 @@
-# Automata_Theory Assignments &amp; all ☻
+# Automata_Theory Assignments &amp; all  ☻
 
