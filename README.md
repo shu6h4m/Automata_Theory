@@ -1,2 +1,2 @@
-# Automata_Theory Assignments &amp; all  ☻
+# MCAC303 Ebooks, HW & Assignments  ☻
 
